@@ -2,6 +2,8 @@ OSHWDEM-TT-Express
 ==================
 
 Todoterreno con prisas para la OSHWDEM 2014
+http://www.ebay.com/itm/1-10-KRT-Crawler-Chrome-Wheel-Tire-Set-90MM-K1-Boom-Racing-/201195269971?pt=Radio_Control_Parts_Accessories&hash=item2ed82c2f53
+http://www.ebay.com/itm/1-10-KRT-Crawler-Chrome-Wheel-Tire-Set-90MM-K1-Boom-Racing-/201195269971?pt=Radio_Control_Parts_Accessories&hash=item2ed82c2f53
 
 
 // http://hobbyking.com/hobbyking/store/__26267__133RPM_Brushed_Motor_w_75_1_Gearbox.html
